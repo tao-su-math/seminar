@@ -1,1 +1,1 @@
-# seminar
+# seminar page.
